@@ -63,4 +63,4 @@
 点击下方链接完成注册，即刻接入高通过率与抗风控卡段：
 
 🚀 **[点击注册并登录 CoreGold 虚拟卡管理后台](https://app.coregold.io/signup?invite_code=ADvlj9b)**
-<img width="1983" height="793" alt="de44d8be064ec0e36237a608145a7c74" src="https://github.com/user-attachments/assets/b6658bc1-65f0-4aee-97df-79667c6969f3" />
+<img width="1983" height="793" alt="de44d8be064ec0e36237a608145a7c74" src="https://github.com/user-attachments/assets/b6658bc1-65f0-4aee-97df-79667c6969f3" /> 
